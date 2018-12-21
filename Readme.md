@@ -8,4 +8,4 @@ Gostou do curso?! Pague o dizimo!
 
 Pode crer?!
 
-:D
+;D
