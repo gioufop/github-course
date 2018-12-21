@@ -7,3 +7,5 @@ Saiba mais no link do curso.
 Gostou do curso?! Pague o dizimo!
 
 Pode crer?!
+
+:D
